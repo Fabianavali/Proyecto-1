@@ -1,0 +1,1 @@
+Aquí encontrarás encontrarás casos de estudio sobre cómo he utilizado los datos para resolver problemas en diferentes industrias, proyectos personales que he desarrollado para aprender nuevas habilidades y una visión personal de mi experiencia en el mundo de los datos.
